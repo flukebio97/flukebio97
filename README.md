@@ -24,3 +24,8 @@
 
 # 📊 GitHub Stats:
 ![](https://streak-stats.demolab.com/?user=flukebio97&theme=dark&hide_border=false)<br/>
+
+
+# 😁 FUN STUFF
+
+My _Schistosoma mansoni_ adult worm pair 3D is now available to download and print here: https://www.printables.com/model/1908645-schistosoma-mansoni-adult-worm-pair
