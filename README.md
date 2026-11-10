@@ -28,4 +28,4 @@
 
 # 😁 FUN STUFF
 
-My _Schistosoma mansoni_ adult worm pair 3D is now available to download and print here: https://www.printables.com/model/1908645-schistosoma-mansoni-adult-worm-pair
+My _Schistosoma mansoni_ adult worm pair 3D model is now available to download and print here: https://www.printables.com/model/1908645-schistosoma-mansoni-adult-worm-pair
